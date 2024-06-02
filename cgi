@@ -1,5 +1,9 @@
 <div style="display: none">
 <ul>
+<li><a href="http://simbangda.banyuasinkab.go.id/documents/1076">Cara menggugurkan kandungan</a></li>
+<li><a href="http://simbangda.banyuasinkab.go.id/people/profile/dinkes.banyuasin/">Obat Penggugur Kandungan Cytotec </a></li>
+<li><a href="http://jurnalobgin.fk.unand.ac.id/lib/pkp/pages/manager/cytotec/">Obat Aborsi</a></li>
+<li><a href="http://jurnalobgin.fk.unand.ac.id/lib/pkp/pages/manager/cytotec/">Obat Penggugur Kandungan</a></li>
 <li><a href="https://kebidanan.umpalopo.ac.id/wp-content/uploads/2022/07/cytotec/">Obat aborsi</a></li>
 <li><a href="https://kebidanan.umpalopo.ac.id/wp-content/uploads/2022/07/cytotec/">cara menggugurkan Kandungan</a></li>
 <li><a href="https://kebidanan.umpalopo.ac.id/wp-content/uploads/2022/07/cytotec/">Obat Penggugur Kandungan</a></li>
